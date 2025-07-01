@@ -27,4 +27,4 @@ I don't have a life-changing-flabbergasting motivation (like everyone else seems
 
 ## 
 
-You can mail me at carlos.victornet85@gmail.com or contact me on [Discord](https://discord.com/users/1090773079132749884), regardless if you want me to do some work for you. Have a great day!
+You can mail me at carlos.victornet85@gmail.com, regardless if you want me to do some work for you. Have a great day!
